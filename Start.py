@@ -1,0 +1,2 @@
+Bismillyah
+Alhamdulillyah 
